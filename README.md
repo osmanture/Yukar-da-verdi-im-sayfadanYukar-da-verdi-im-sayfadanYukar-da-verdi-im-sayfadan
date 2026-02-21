@@ -1,1 +1,9 @@
-# Yukar-da-verdi-im-sayfadanYukar-da-verdi-im-sayfadanYukar-da-verdi-im-sayfadan
+.
+.
+.
+
+.
+.
+.
+.
+.# Yukar-da-verdi-im-sayfadanYukar-da-verdi-im-sayfadanYukar-da-verdi-im-sayfadan
